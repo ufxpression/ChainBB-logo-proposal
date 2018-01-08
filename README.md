@@ -1,0 +1,1 @@
+# ChainBB-logo-proposal
